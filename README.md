@@ -1,0 +1,1 @@
+# responsive-story-privacy-policy
